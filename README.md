@@ -1,2 +1,0 @@
-# Ajanta-work-nk
-Work.
